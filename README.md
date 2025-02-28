@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Unity
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me :@KenzaDigital
-- Discord id : nugget3814
+- Discord id : kcbne
 - 😄 Pronouns: ... she/her 
 
 
