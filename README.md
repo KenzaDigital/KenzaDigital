@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me :@KenzaDigital
 - Discord id : kcbne
+- email : kenzacbne@gmail.com
 - 😄 Pronouns: ... she/her 
 
 
